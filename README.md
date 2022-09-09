@@ -6,7 +6,11 @@ New 42.3 improved version NOFEE untill 2023 to support mining operations
 AUTOMATIC MACHINE TRANSLATION : 
 
 新的 42.3 改进版 NOFEE 直到 2023 年以支持采矿作业
+
 Новая улучшенная версия 42.3 NOFEE до 2023 года для поддержки майнинга
+
 채굴 작업을 지원하기 위해 2023년까지 새로운 42.3 개선된 버전 NOFEE MINER
+
 Nova versão 42.3 melhorada NOFEE até 2023 para apoiar as operações de mineração
+
 Neue 42.3 verbesserte Version NOFEE bis 2023 zur Unterstützung des Mining-Betriebs
